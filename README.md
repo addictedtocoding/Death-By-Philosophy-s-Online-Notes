@@ -1,2 +1,2 @@
 # Death-By-Philosophy-s-Online-Notes
-www.dbpnotesonline.com
+www.dbpnotesonline.co.nf
